@@ -1,4 +1,4 @@
-## Hi there 👋
+## Hey👋 Rushi Here...
 
 <!--
 **rushi806/rushi806** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
